@@ -1,0 +1,14 @@
+Ingredients:-
+- 1 whole chicken, cut in 10-12 pieces
+- 200 gms Dahi/Curd
+- 1 tbsp Butter
+- 1 tsp turmeric powder
+- 2 tbsp red chilli powder
+- Salt to taste
+- 2 tbsp oil
+- 1 piece of charcoal
+- ginger garlic paste 
+- Garnish
+- Coriander leaves
+- onions slices, 
+- lemons halves
